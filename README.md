@@ -1,1 +1,1 @@
-# Chatrapati-shivaji-maharaj-legend
+# Chatrapati Shivaji Maharaj
